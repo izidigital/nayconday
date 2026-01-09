@@ -9,8 +9,6 @@ tags:
   - mùa chay
 ---
 
-# Cách xưng tội ngắn gọn: trình tự 7 bước để xưng tội đầy đủ
-
 Nhiều người ngại xưng tội không phải vì không muốn trở về, mà vì sợ “không biết nói sao cho đúng”, hoặc lo mình nói dài dòng, lộn xộn. Thật ra, xưng tội có thể **rất ngắn gọn** mà vẫn **đầy đủ**: chỉ cần chuẩn bị tâm hồn, xét mình cẩn trọng, rồi xưng tội rõ ràng, và làm việc đền tội.
 
 Bài này tóm lược một trình tự đơn giản, dễ nhớ, để bạn có thể bước vào tòa giải tội với bình an.
