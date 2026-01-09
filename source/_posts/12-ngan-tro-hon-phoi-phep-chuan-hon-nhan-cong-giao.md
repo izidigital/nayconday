@@ -2,11 +2,11 @@
 title: "Luật hôn nhân Công giáo: 12 ngăn trở hôn phối và phép chuẩn"
 date: 2026-01-09 20:00:00
 tags:
-  - giao-ly-hon-nhan
-  - hon-phoi
-  - ngan-tro-hon-phoi
-  - phep-chuan
-  - giao-luat
+  - giáo lý hôn nhân
+  - hôn phối
+  - ngăn trở hôn phối
+  - phép chuẩn
+  - giáo luật
 ---
 
 Trong đời sống Đức Tin, hôn nhân không chỉ là chuyện “hợp nhau rồi cưới”, mà còn là một giao ước có chiều sâu thiêng liêng và pháp lý trong Hội Thánh. Vì thế, **Giáo luật nói đến “ngăn trở hôn phối”**: những tình trạng hoặc hoàn cảnh khiến hôn phối **không thành sự** (vô hiệu) hoặc **bất hợp pháp** (không đúng thủ tục luật định).

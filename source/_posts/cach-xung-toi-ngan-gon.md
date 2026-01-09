@@ -2,11 +2,11 @@
 title: Cách xưng tội ngắn gọn - trình tự 7 bước để xưng tội đầy đủ
 date: 2026-01-09 20:00:00
 tags:
-  - xung-toi
-  - bi-tich-hoa-giai
-  - cach-xung-toi
-  - xet-minh
-  - 10-dieu-ran
+  - xưng tội
+  - bí tích hòa giải
+  - công giáo
+  - cầu nguyện
+  - mùa chay
 ---
 
 # Cách xưng tội ngắn gọn: trình tự 7 bước để xưng tội đầy đủ
